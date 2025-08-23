@@ -115,5 +115,6 @@ Not yet.
 ---
 
 ## 📩 Contact
-For any queries or suggestions, feel free to reach out at **janamjaij9810@gmail.com**
+For any queries or suggestions, feel free to reach out at **sagart191711@gmail.com**
+
 
